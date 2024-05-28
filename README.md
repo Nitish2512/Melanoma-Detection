@@ -52,5 +52,5 @@
 
 
 ## Contact
-Created by [@Niti2512] - feel free to contact me!
+Created by [@Nitish2512] - feel free to contact me!
 email- tiwarieee2@gmail.com
